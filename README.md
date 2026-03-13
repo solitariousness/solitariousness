@@ -5,10 +5,21 @@ iSen. Or; *Sendaia, Sen, Sol*
 INTJ  .  idk my enneagram
 
 # *I play;*
-*- PMoon games, - Hoyo games, - Persona 3/5, - Arknights (not endfield), - KuroGames, - Sky:COTL, - CRK*
+- PMoon games
+- Hoyo games
+- Persona 3/5
+- Arknights (not endfield)
+- KuroGames
+- Sky:COTL
+- CRK
 
 # *I like;*
-*- Danmei Novels, - Donghua, - Novels (like lotm, tcf, reverend insanity), - Visual Novels, - Animes, - Other projects like (alnst, etc)*
+- Danmei Novels
+- Donghua
+- Novels (like lotm, tcf, reverend insanity)
+- Visual Novels
+- Animes
+- Other projects like (alnst, etc)
 
 # *I listen to;*
 *ill work on this with a link.....*
