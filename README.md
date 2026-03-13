@@ -15,3 +15,5 @@ INTJ  .  idk my enneagram
 
 # *Extra*
 *- Im friendly, so pls c+h me on PT. - Im from SEA. - I may not talk much on PT. - Pls ask for my tiktok hehe*
+
+>*'pag ayaw may dahilan, pag gusto palaging mayroong paraan.' - ANTUKIN by RicoBlanco*
