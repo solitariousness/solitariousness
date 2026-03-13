@@ -1,16 +1,17 @@
-## Hi there 👋
+# ‧₊˚♪ 𝄞₊˚⊹
 
-<!--
-**solitariousness/solitariousness** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
+iSen. Or; *Sendaia, Sen, Sol*
 
-Here are some ideas to get you started:
+INTJ  .  idk my enneagram
 
-- 🔭 I’m currently working on ...
-- 🌱 I’m currently learning ...
-- 👯 I’m looking to collaborate on ...
-- 🤔 I’m looking for help with ...
-- 💬 Ask me about ...
-- 📫 How to reach me: ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
--->
+# *I play;*
+*- PMoon games, - Hoyo games, - Persona 3/5, - Arknights (not endfield), - KuroGames, - Sky:COTL, - CRK*
+
+# *I like;*
+*- Danmei Novels, - Donghua, - Novels (like lotm, tcf, reverend insanity), - Visual Novels, - Animes, - Other projects like (alnst, etc)*
+
+# *I listen to;*
+*ill work on this with a link.....*
+
+# *Extra*
+*- Im friendly, so pls c+h me on PT. - Im from SEA. - I may not talk much on PT. - Pls ask for my tiktok hehe*
