@@ -1,20 +1,22 @@
-> <img width="350" height="200" alt="image" src="https://github.com/user-attachments/assets/0806fa32-d091-43c9-bac6-7ef2c02f49b6" /> 
+<div align="center">
 
-lcb66, lcb61, lcb16, lowellxiao, argaliwei int
+><img width="350" height="200" alt="image" src="https://github.com/user-attachments/assets/0806fa32-d091-43c9-bac6-7ef2c02f49b6" /> 
+
+>lcb66, lcb61, lcb16, lowellxiao, argaliwei int
 
 > i love my very cool kio /p (@Luxur1ousStxr git)
 
 _________
 
-*一定要好好吃饭，好吗？*
+>*一定要好好吃饭，好吗？*
 
-*一定要保证睡个好觉，好吗？*
+>*一定要保证睡个好觉，好吗？*
 
-*你一定要好好休息，好吗？*
+>*你一定要好好休息，好吗？*
 
-*请务必深呼吸，释放压力，好吗？*
+>*请务必深呼吸，释放压力，好吗？*
 
-*如果需要的话，一定要说“不”，好吗？*
+>*如果需要的话，一定要说“不”，好吗？*
 
-*要知道，有人在为你感到骄傲，好吗？*
+>*要知道，有人在为你感到骄傲，好吗？*
 
