@@ -4,8 +4,7 @@
 
 >lcb66, lcb61, lcb16, lowellxiao, argaliwei int
 
-> i love my very cool kio /p (@Luxur1ousStxr git)
-
+> 
 _________
 
 >*一定要好好吃饭，好吗？*
