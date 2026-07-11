@@ -8,8 +8,6 @@
 > 
 _________
 
-><img width="350" height="200" alt="image" src="https://github.com/user-attachments/assets/0806fa32-d091-43c9-bac6-7ef2c02f49b6" /> 
-
 
 >*一定要好好吃饭，好吗？*
 
