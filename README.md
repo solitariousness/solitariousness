@@ -1,7 +1,8 @@
 <div align="center">
 
 
-><img width="350" height="200" alt="image" src="https://github.com/user-attachments/assets/d60187d0-f361-4149-ae16-feb486248c80" />
+<img width="550" height="400" alt="image" src="https://github.com/user-attachments/assets/9c48cb47-0a25-428f-9c50-dc5e2b65a881" />
+
 
 int me plz i want new friends, but dont be weird 
 
