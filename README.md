@@ -9,6 +9,6 @@ int me plz i want new friends, but dont be weird
 > 
 _________
 
-@Luxur1ousStxr STOP CALLING ME SWEET POTATO (follow her git, cus its cool and i dont understand any gext but thats just how she is haha)
+@Luxur1ousStxr STOP CALLING ME SWEET POTATO (follow her git, cus its cool and i dont understand any text she wrote for designs and stuff but thats just how she is haha)
 
 
