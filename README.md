@@ -10,4 +10,5 @@ _________
 
 @Luxur1ousStxr STOP CALLING ME SWEET POTATO 
 
+shout out to my two bisayas awww @reflectivesea @lanternluga
 
